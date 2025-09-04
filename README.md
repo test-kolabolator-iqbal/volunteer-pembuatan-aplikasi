@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Moch Iqbal GNTNG,([https://oo.or.id](https://www.moch-iqbal.my.id/)).
